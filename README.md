@@ -1,0 +1,2 @@
+- Hi, I’m @meikuam
+- 👀 I’m interested in ML
